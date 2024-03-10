@@ -1,4 +1,4 @@
-[![MasterHead](https://i.ytimg.com/vi/8tw1OHbLuac/mqdefault.jpg)
+[![MasterHead](https://i0.wp.com/blexin.com/wp-content/uploads/2020/12/1126dea7-099f-4191-b18b-c3691cd34b47.png?fit=1024%2C608&ssl=1)
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/volkan karakulak" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="volkan karakulak" height="30" width="40" /></a>
